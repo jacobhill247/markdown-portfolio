@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![DNA](https://www.cleanpng.com/png-dna-genetics-cell-clip-art-1608375/preview.html)
